@@ -19,5 +19,4 @@ Jogar futebol, jogar videogame, ouvir musica, sair com os amigos
 - Inovação Social e Científica e Empreendedorismo
 
 # Interesses
-Tenho como interesses aprender sobre tecnologia e me qualificar melhor no mercado, buscando mais conhecimento e sucesso na vida profissional. Além disso busco me adaptar melhor no mundo da tecnologia.
-**Matheusalves092/matheusalves092** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Homens, Idosas e 60+
