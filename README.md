@@ -19,6 +19,6 @@ Jogar futebol, jogar videogame, ouvir musica, sair com os amigos
 - Inovação Social e Científica e Empreendedorismo
 
 # Interesses
-Tecnologia e informática
-Eletrónica
+Tecnologia e informática,
+Eletrónica,
 Jogos eletrónicos
