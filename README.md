@@ -19,4 +19,6 @@ Jogar futebol, jogar videogame, ouvir musica, sair com os amigos
 - Inovação Social e Científica e Empreendedorismo
 
 # Interesses
-Homens, Idosas e 60+
+Tecnologia e informática
+Eletrónica
+Jogos eletrónicos
